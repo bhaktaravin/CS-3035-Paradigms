@@ -1,0 +1,2 @@
+# ParadigmsClass
+# ParadigmsClass
